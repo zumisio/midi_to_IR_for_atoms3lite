@@ -10,7 +10,7 @@
 
 https://github.com/user-attachments/assets/b59e6713-8b29-4a15-af8f-e144be402528
 
-セット例
+セット例 強力テープで固定
 
 https://github.com/user-attachments/assets/8fe79789-d609-4f19-ac0c-47ffadb1d1e3
 
